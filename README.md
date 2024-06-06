@@ -1,3 +1,6 @@
 ## Pics of NovelNest(Story Sharing App)
 ![image](https://github.com/ManojRathinam/NovelNest/assets/73572777/0daf7380-5fff-43c6-94c1-a358923b10f8)
 ![WhatsApp Image 2024-05-04 at 7 38 14 PM](https://github.com/ManojRathinam/NovelNest/assets/104087062/fb9bb354-ec34-4a09-8d4f-709309bf51ae)
+![WhatsApp Image 2024-05-04 at 7 40 24 PM](https://github.com/ManojRathinam/NovelNest/assets/104087062/377a58b8-f750-4c0f-8860-528627d13ad9)
+![WhatsApp Image 2024-05-04 at 7 39 50 PM](https://github.com/ManojRathinam/NovelNest/assets/104087062/8dc7f2db-b5c4-4152-bf73-7f1b1868cbbc)
+![WhatsApp Image 2024-05-04 at 7 39 10 PM](https://github.com/ManojRathinam/NovelNest/assets/104087062/f5165525-9c64-4a99-9910-498894bb4af5)
